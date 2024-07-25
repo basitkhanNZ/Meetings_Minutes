@@ -6,5 +6,4 @@ Minitues of the meetig of the Mubadala ACCESS - Atmosphere group.
 
 [By-Weekly Mubadala_AACCEES](https://docs.google.com/document/d/1fAS4GO7iarHz_SvEGOrvBNBYelg4awU9S3RMRIJjHC8/edit?usp=drive_link)
 
-
-https://nyu.box.com/s/ubxnkggnztcjtw92gpv3owor6rnvbztv
+[By-Weekly Mubadala_AACCEES](https://nyu.box.com/s/ubxnkggnztcjtw92gpv3owor6rnvbztv)
